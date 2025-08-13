@@ -1,5 +1,5 @@
 # 💫 About Me:
-i play games
+i looooove java
 
 
 ## 🌐 Socials:
